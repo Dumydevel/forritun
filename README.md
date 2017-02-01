@@ -1,0 +1,2 @@
+# forritun
+github verkefni
